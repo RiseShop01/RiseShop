@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=35&pause=200&center=verdadeiro&vCenter=verdadeiro&repeat=verdadeiro&random=falso&width=1000&lines=FireX+RP+;Repositorio+Oficial)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=35&pause=200&center=verdadeiro&vCenter=verdadeiro&repeat=verdadeiro&random=falso&width=1000&lines=Rise+Shop+;Repositorio+Oficial)](https://git.io/typing-svg)
 
 
   <p>
